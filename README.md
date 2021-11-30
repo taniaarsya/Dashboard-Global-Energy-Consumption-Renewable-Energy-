@@ -1,1 +1,1 @@
-# Global-Energy-Consumption-Renewable-Energy-
+# Global Energy Consumption & Renewable Energy
